@@ -1,1 +1,1 @@
-https://blandycandy.github.io/blandyproje/
+https://blandycandy.github.io/urlsniper
